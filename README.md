@@ -1,2 +1,2 @@
-# HarshilThakkar_Portfolio
+# harshil-thakkar.com
 HarshilThakkar_Portfolio
